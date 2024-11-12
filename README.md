@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Kanz0-GD
+- 👀 I’m interested in gaming (like Geometry Dash or Minecraft)
+- 📫 How to reach me: discord: kanzoooo, gmail: kanzo4427@gmail.com
+- 😄 Pronouns: he/him/his
+- ⚡ Fun fact: idk i like gaming
